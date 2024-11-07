@@ -1,4 +1,4 @@
-### Trainee Business Analyst | Data Analysis & Process Improvement Enthusiast | Learning and Growing in the World of Business Intelligence
+### Business Analyst | Data Analysis & Process Improvement Enthusiast | Learning and Growing in the World of Business Intelligence
 ---
 ### Repository Contents
 ---
