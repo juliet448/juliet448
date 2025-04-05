@@ -8,7 +8,7 @@
 
 ### Goals
 ---
-- Complete my training with incubator hub *LITA*
+- Completed my training with incubator hub *LITA*
 - Enhancing my analytical mindset with incubator hub *LITA* data analysis comprehensive training, and  discovering new opportunities for personal and professional growth.
 
 - I’m interested in career development and growth
