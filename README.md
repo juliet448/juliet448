@@ -50,11 +50,11 @@ Developing proficiency in business analysis with incubator hub's detailed traini
   
 ### Connect with Me
 ---
-- LinkedIn: [LINKEDINJULIETODEMERO@GMAIL.COM](#linkinjulietodemero@gmail.com)
+- LinkedIn: [LINKEDINJULIETODEMERO](#LinkInjulietodemero)
 - Email: [JULIETODEMERO@GMAIL.COM](#julietodemero@gmail.com)
-- Facebook: [JULIETODEMERO@GMAIL.COM](#julietodemero@maail.com]
-- Youtube: [JULIETODEMERO@GMAIL.COM](#julietodemero@gmail.com)
-- Github: [JULIET448](#juliet448/juliet448)
+- Facebook: [JULIETODEMERO@GMAIL.COM](#julietodemero@mail.com)
+- Youtube: [JULIETODEMERO](#julietodemero)
+- Github: [JULILIET448](#juliet448/juliet448)
 - Youtube: [JULIETODEMERO@MAIL.COM](#julietodemero@gmail.com)
   
 ---- Pronouns: Accurate, Reliable, Specific and Consistent
